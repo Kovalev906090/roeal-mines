@@ -1,1 +1,1 @@
-# roeal-mines
+# royal
